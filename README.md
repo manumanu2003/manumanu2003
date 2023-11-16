@@ -1,7 +1,9 @@
-- 👋 Hi, I’m @manumanu2003
+- 👋 Hi, It's me **Manu**
 - 👀 I’m Big fan of Nidhima❤️
--    maggie lover
+-    maggie lover🍝
 - 💞️ I’m looking to creating new app
+- **Always try to be perfect,but dont commit that u'r perfect**
+- 
 - 📫 Thanks fr all who helping me
 
 <!---
